@@ -1,3 +1,4 @@
 ### OLA! SOU BRANDÃO SILVA 👋
-
-
+### Adoro tecnologia...
+### Estudando e procurando aprender máximo...
+### Não importa que momento você vive em sua carreira hoje: alguém já passou por uma experiência muito parecida.
