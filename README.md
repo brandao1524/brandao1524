@@ -3,3 +3,4 @@
 ### Estudando e procurando aprender máximo...
 ### Não importa que momento você vive em sua carreira hoje: alguém já passou por uma experiência muito parecida.
 
+![certificado autoridade](https://user-images.githubusercontent.com/106616102/187547772-e1f8106f-7fa8-4aed-b1a8-52e6cd5a03af.PNG)
